@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @MamaMech
+- 👀 I’m interested in ... Python, bots
+- 🌱 I’m currently learning ... Python
+- 💞️ I’m looking to collaborate on ... nothing
+- 📫 How to reach me ... discord Sierra#0666
